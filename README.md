@@ -1,0 +1,1 @@
+Intinya belajar, soalnya aku bingung mulai dari mana.
